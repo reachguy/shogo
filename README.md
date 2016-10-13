@@ -1,6 +1,6 @@
 # Shogo Shimizu
 
-#### [☛ shogo.ca](https://shogo.ca)
+#### [☛ shogo](https://shogoshimizu.com)
 
 ![](photo.jpg)
 
